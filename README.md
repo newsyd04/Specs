@@ -16,5 +16,3 @@ Articles and Newspaper Mentions:
 https://www.hrb.ie/news/news-story/article/wearable-smart-device-for-dementia-patients-wins-hrb-special-award-at-the-btyste/
 https://imgur.com/a/bGmJ24b
 https://www.siliconrepublic.com/innovation/bt-young-scientist-2022-aditya-joshi-aditya-kumar
-
-
