@@ -2,7 +2,7 @@
 Specs - A wearable smart device for dementia patients
 
 Letter of Recomendation:
-
+https://drive.google.com/file/d/1IC02Zl7hhQ4IZl-l5b2Mid_5yQiqmRY6/view?usp=drivesdk
 
 Pitch Videos:
 Specs Short Video 2021 - https://youtu.be/oKWY7ihPVkg
